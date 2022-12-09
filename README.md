@@ -9,7 +9,9 @@
 
 - 💬 Ask me about **Technical stuff.**
 
-- 📫 How to reach me **sayalikhedkar123@gmail.com**
+- 📫 How to reach me Email **sayalikhedkar123@gmail.com**
+
+- 📫 How to reach me Linkedin **https://www.linkedin.com/in/sayali-khedkar-3614b124a/**
 
 - ⚡ Fun fact **I am Data Enthusiast and trekker.**
 
